@@ -1,0 +1,1 @@
+# vendaasegura.website
